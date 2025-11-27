@@ -25,5 +25,10 @@ Karawoke Songs
 
 [Piudina Bhanda Bhandai Pilayo](https://www.youtube.com/watch?v=2B4ELo9R2hI&list=RD2B4ELo9R2hI&start_radio=1)
 
+[Sagar Kinare](https://www.youtube.com/watch?v=40hhrsrGxt8&list=RDd-1X35btsCg&index=7)
+[Original](https://www.youtube.com/watch?v=Heuh-WHd9hk&list=RDHeuh-WHd9hk&start_radio=1)
+
+[Timro Mayale Badhera Rakha](https://www.youtube.com/watch?v=3zYBcGfOfu0&list=RD3zYBcGfOfu0&start_radio=1)
+
 
 
