@@ -21,6 +21,8 @@ Karawoke Songs
 |Tujhe Dekha To Yeh|
 |Kanchhi Hey Kanchhi|](https://www.youtube.com/watch?v=24LCBrJryco&list=RD24LCBrJryco&start_radio=1)
 
+[ JAGJIT SINGH GHAZALS || HOTON SE CHOO LO TUM || TUM ITNA JO || TUM KO DEKHA TO YE KHAYAL AAYA](https://www.youtube.com/watch?v=40hhrsrGxt8&list=RDd-1X35btsCg&index=7)
+
 [Piudina Bhanda Bhandai Pilayo](https://www.youtube.com/watch?v=2B4ELo9R2hI&list=RD2B4ELo9R2hI&start_radio=1)
 
 
