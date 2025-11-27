@@ -12,5 +12,8 @@ Karawoke Songs
 [Deurali ma Batas Chalyo](https://www.youtube.com/watch?v=nBk3t98FRT0&list=RDnBk3t98FRT0&start_radio=1)
 [Original](https://www.youtube.com/watch?v=CtfD9sMY7Sg&list=RDCtfD9sMY7Sg&start_radio=1)
 
+[Bachunjelilai](https://www.youtube.com/watch?v=5nqea_9YhC0&list=RD5nqea_9YhC0&start_radio=1)
+[Original](https://www.youtube.com/watch?v=atRYuQBfnqw&list=RDatRYuQBfnqw&start_radio=1)
+
 
 
