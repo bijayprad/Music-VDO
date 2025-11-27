@@ -9,6 +9,8 @@ Karawoke Songs
 [Timileta hoina timra bhakha harule](https://www.youtube.com/watch?v=HOcKqmdhsPc&list=RDHOcKqmdhsPc&start_radio=1)
 [Original](https://www.youtube.com/watch?v=xxFyLeAfS2A&list=RDxxFyLeAfS2A&start_radio=1)
 
+[Deurali ma Batas Chalyo ](https://www.youtube.com/watch?v=nBk3t98FRT0&list=RDnBk3t98FRT0&start_radio=1)
+[Original](https://www.youtube.com/watch?v=CtfD9sMY7Sg&list=RDCtfD9sMY7Sg&start_radio=1)
 
 
 
